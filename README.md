@@ -35,7 +35,7 @@ Atualmente, trabalho no setor de **Faturamento**, onde gerencio o ciclo de vida 
 ---
 
 ### 📫 Let's connect:
-- [LinkedIn]([https://www.linkedin.com/in/adenilson-m-costa-75319b2a3/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BExn%2FutloQyeKhkdWTkrNbQ%3D%3D]
+- [LinkedIn](https://www.linkedin.com/in/adenilson-m-costa-75319b2a3/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BExn%2FutloQyeKhkdWTkrNbQ%3D%3D)
 - [Meu Portfólio de Estudos](#)
 
 ---
